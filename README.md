@@ -1,2 +1,2 @@
-# CA COVID-19 Policy Landscape
+# California COVID-19 Policy Landscape
 
