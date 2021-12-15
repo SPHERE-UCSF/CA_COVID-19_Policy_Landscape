@@ -1,2 +1,2 @@
-# CA_COVID-19_Policy_Landscape
+# CA COVID-19 Policy Landscape
 
